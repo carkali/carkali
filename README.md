@@ -6,6 +6,6 @@
 
 ![](https://files.catbox.moe/3dcyn4.png)
 ##### [Rentry](https://rentry.co/Ringed_Retail)ㅤㅤㅤㅤ[Guns.lol](https://guns.lol/lcb6)
-##### [Atabook]()
+##### [Atabook](https://reimu.atabook.org/)
 
 ![](https://files.catbox.moe/g27i3f.png)
