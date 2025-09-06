@@ -8,6 +8,4 @@
 ##### [rentry](https://rentry.co/Ringed_Retail)ㅤㅤㅤㅤ[guns.lol](https://guns.lol/lcb6)
 ##### [atabook](https://reimu.atabook.org/)ㅤㅤㅤ[tetratto](https://tetratto.com/@lobcorp)
 
-##### [that fucking guy that I hate](https://liamthecool.straw.page/)
-
 ![](https://files.catbox.moe/g27i3f.png)
