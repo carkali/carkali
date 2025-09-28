@@ -2,7 +2,7 @@
 
 ![](https://files.catbox.moe/vrcov0.png)
 
-![](https://komarev.com/ghpvc/?username=carkali&color=fe886a&style=flat&label= (∩｡•ᦍ•｡) &base=8050)
+![](https://komarev.com/ghpvc/?username=carkali&color=fa476e&style=flat&label= (∩｡•ᦍ•｡) &base=8050)
 
 ![](https://files.catbox.moe/njxwdf.png)
 ##### [rentry](https://rentry.co/Ringed_Retail)ㅤㅤㅤㅤ[guns.lol](https://guns.lol/lcb6)
