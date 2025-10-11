@@ -6,6 +6,6 @@
 
 ![](https://files.catbox.moe/njxwdf.png)
 ##### [rentry](https://rentry.co/paranoiangel)ㅤㅤㅤㅤ[guns.lol](https://guns.lol/lcb6)
-##### [atabook](https://reimu.atabook.org/)ㅤㅤㅤ[tetratto](https://tetratto.com/@lobcorp)
+##### [atabook](https://jadeeye.atabook.org/)ㅤㅤㅤ[tetratto](https://tetratto.com/@lobcorp)
 
 ![](https://files.catbox.moe/wixm0n.png)
