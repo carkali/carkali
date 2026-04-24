@@ -1,11 +1,11 @@
 ⠀<div align="center">
 
-![](https://files.catbox.moe/er8i37.png)
+![](https://file.garden/aKdBlT_hWBm_xlmo/personal/Untitled566_20260424184840.png)
 
-![](https://komarev.com/ghpvc/?username=carkali&color=c6b5bf&style=flat&label= ₍՞◌′ᵕ‵◌₎♡ &base=8050)
+![](https://komarev.com/ghpvc/?username=carkali&color=ff0078&style=flat&label= ₍՞◌′ᵕ‵◌₎♡ &base=8050)
 
-![](https://files.catbox.moe/92fp6s.gif)
+![](https://file.garden/aKdBlT_hWBm_xlmo/personal/subspacegit)
 ##### [rentry](https://rentry.co/firstpromise)ㅤㅤㅤㅤ[guns.lol](https://guns.lol/pimling)
 ##### [atabook](https://satori.atabook.org/)ㅤㅤㅤ[tetratto](https://tetratto.com/@lobcorp)
 
-![](https://files.catbox.moe/vfwjqi.png)
+![](https://file.garden/aKdBlT_hWBm_xlmo/personal/Untitled566_20260424184845.png)
