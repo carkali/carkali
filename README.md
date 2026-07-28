@@ -5,6 +5,6 @@
 ![](https://komarev.com/ghpvc/?username=carkali&color=ff0078&style=flat&label= ₍՞◌′ᵕ‵◌₎♡ &base=8050)
 
 ![](https://file.garden/aKdBlT_hWBm_xlmo/personal/subspacegit)
-##### [guns.lol](https://guns.lol/pimling)ㅤㅤㅤ[atabook](https://angelnymia.atabook.org/)ㅤㅤㅤ[tetratto](https://tetratto.com/@lobcorp)
+##### [guns.lol](https://guns.lol/theria)ㅤㅤㅤ[atabook](https://angelnymia.atabook.org/)ㅤㅤㅤ[tetratto](https://tetratto.com/@lobcorp)
 
 ![](https://file.garden/aKdBlT_hWBm_xlmo/personal/Untitled566_20260424184845.png)
