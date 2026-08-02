@@ -1,4 +1,4 @@
-⠀<div align="center">
+<div align="center">
 
 ![](https://file.garden/aKdBlT_hWBm_xlmo/personal/ezgif-65b2e4a3cb801134.png)
 
