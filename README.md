@@ -8,6 +8,6 @@
 ##### [strawpage](https://partyglaggle.straw.page/warning)ㅤㅤㅤ[guns.lol](https://guns.lol/lovduls)ㅤㅤㅤ[atabook](https://angelnymia.atabook.org/)
 ![](https://s7.ezgif.com/tmp/ezgif-7c66bd3addbaab0d.png)
 
-##### so/sp⠀4w5⠀479⠀Elvf⠀Mel-sang⠀RLUAI
+##### so/sp⠀4w5⠀479⠀Elvf⠀Mel-sang⠀RLUAI⠀Rogue of life
 
 ![](https://file.garden/aKdBlT_hWBm_xlmo/personal/ezgif-71b4bcde1544022e.png)
