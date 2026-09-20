@@ -5,7 +5,6 @@
 ![](https://komarev.com/ghpvc/?username=carkali&color=692063&style=flat&label= ₍՞◌′ᵕ‵◌₎♡ &base=8050)
 
 ![](https://file.garden/aKdBlT_hWBm_xlmo/personal/carmensmile)
-##### [strawpage](https://partyglaggle.straw.page/warning)ㅤㅤㅤ[guns.lol](https://guns.lol/lovduls)
-##### [atabook](https://angelnymia.atabook.org/)ㅤㅤㅤ[tetratto](https://tetratto.com/@lobcorp)
+##### [strawpage](https://partyglaggle.straw.page/warning)ㅤㅤㅤ[guns.lol](https://guns.lol/lovduls)ㅤㅤㅤ[atabook](https://angelnymia.atabook.org/)
 
 ![](https://file.garden/aKdBlT_hWBm_xlmo/personal/3e8f3047d190b9fd33e0ffea398eca1d-removebg-preview1-ezgif.com-resize%20(1).png)
